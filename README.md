@@ -1,3 +1,0 @@
-# stark-proyectos
-
-Hi
